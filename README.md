@@ -19,5 +19,8 @@ a lot of instruments and vocals going
 
 I have other 'EP's written, but its a back log. i started singing lessons 
 in dec 2024 and am getting better at fitting lyrics, melody and recording it. 
-Im a bass barritone with alto, so when i pick a melody the octave plays a big part
-in the tone. 
+
+
+thanks for dropping by.
+
+-B
